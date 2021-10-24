@@ -1,6 +1,6 @@
 
 Channa.io
-[Channabasava_Chola](https://channu7.github.io/channa.io/)
+[ABDULLAHMUAAD](https://github.com/abdullahyahyamohammed/abdullahio)
 
 <!-- ## Welcome to GitHub Pages
 
